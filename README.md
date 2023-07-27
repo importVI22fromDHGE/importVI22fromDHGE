@@ -3,4 +3,4 @@
 Die Mitschriften sind unter folgendem Link verfügbar:
 
 
-Um das Passwort für die Mitschriften zu erhalten, senden Sie bitte eine E-Mail an: mailto:importVI22fromDHGE@proton.me
+Um das Passwort für die Mitschriften zu erhalten, senden Sie bitte eine E-Mail an: importVI22fromDHGE@proton.me
